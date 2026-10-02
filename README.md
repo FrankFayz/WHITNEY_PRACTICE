@@ -1,0 +1,3 @@
+# WHITNEY_PRACTICE
+Just a simple view of github
+JUST A SIMPLE RECAP WITH WHITNEY
